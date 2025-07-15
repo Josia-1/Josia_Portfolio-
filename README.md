@@ -42,7 +42,7 @@ Here are a few highlights from my portfolio:
 
 ## 🌐 Let's Connect
 
-- 💼 [LinkedIn](www.linkedin.com/in/josia-stanly-3b51091a8)
+- 💼 [LinkedIn](https://www.linkedin.com/in/josia-stanly-3b51091a8/)
 - 💌 [Email Me](mailto:josiastanly99@gmail.com)
 
 Thanks for visiting!
